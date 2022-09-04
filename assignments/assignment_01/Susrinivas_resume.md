@@ -27,7 +27,7 @@
 * **Worked as a system engineer in 2.5 years**
 
 ##Business skills
-* **no business experience as of now, but I had started a game stall at my college for one day which did good job in making money, that was the most fun job which i liked and has learnt some business experience
+* **no business experience as of now, but I had started a game stall at my college for one day which did good job in making money, that was the most fun job which i liked and has learnt some business experience**
 
 ##Awards
 * **Promoted to Shift lead of Level II based on my performance in the team**
